@@ -1,1 +1,0 @@
-# jekigeronracom.github.io
